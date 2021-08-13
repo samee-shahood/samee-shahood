@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @samee-shahood
 - 👀 I love watching hockey, and am really interesting in statistics and it's application to sports
-- 🌱 I'm currently an incoming 3rd year student at Carleton University 
+- 🌱 I'm currently an incoming 3rd year student at Carleton University studying Computer Science
 - 📫 You can reach me through my email, sameeshahood11@gmail.com!
